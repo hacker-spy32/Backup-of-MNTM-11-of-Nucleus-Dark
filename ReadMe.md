@@ -1,4 +1,6 @@
-# Hi, I'm Nucleus Dark
+# Im not the orignal auther of this project this is just a backup
+
+the orignal auther's discord https://github.com/GthiN89/FuckingCheapFlipperZero-DIY-Flipper-zero-The-real-on
 
 > To the world that punished me by denying me the life I was born for—all for the crime of simply living it for myself instead of for you—this is my middle finger.
 > 
